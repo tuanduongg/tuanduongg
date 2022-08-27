@@ -7,7 +7,7 @@
 - 💬 Ask me about everything,I am happy to help
 - 📫 How to reach me [![Facebook Badge](https://img.shields.io/badge/-Facebook-blue?style=flat&logo=Facebook&logoColor=white)](https://www.facebook.com/toilatuann)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Crazy Boy
+- ⚡ Fun fact: Crazy
 
 ### :hammer_and_wrench: Languages and Tools :
 <div>
